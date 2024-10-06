@@ -1,2 +1,2 @@
 # Happy_Navratri_By_Aditya_Pal
-Navratri, a festival dedicated to the worship of Goddess Durga, is a time of immense joy, devotion, and spiritual reflection. It celebrates the triumph of good over evil and is observed with great enthusiasm across India. 
+Navratri, a festival dedicated to the worship of Goddess Durga, is a time of immense joy, devotion, and spiritual reflection. It celebrates the triumph of good over evil and is observed with great enthusiasm across India. Our website is your one-stop guide to fully embracing the spirit of Navratri, offering insights into its traditions, rituals, and celebrations, along with practical tips to make your festivities more meaningful.
